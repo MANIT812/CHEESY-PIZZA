@@ -1,0 +1,1 @@
+Humans are drawn to foods that are fatty and sweet and rich and complex. Pizza has all of these components. Cheese is fatty, meat toppings tend to be rich, and the sauce is sweet. Pizza toppings are also packed with a compound called glutamate, which can be found in the tomatoes, cheese, pepperoni and sausage.
